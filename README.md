@@ -1,2 +1,2 @@
 # git-exercize
-a book fell on my head... i only have my shelf to blame.
+a moon rock tastes better than an earthly rock because it's meteor
